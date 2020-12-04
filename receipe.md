@@ -1,0 +1,1 @@
+first of all you need to boil a cup of water for 1 minute and we have to crack our maggi in pieces and boil it  let it boil for 2 minutes when it is boiling tear your paket of "masala"(micxture of spices) which is inside  the paket of maggi and pour it in that maggi and mix it proparly and after it is boiled take out in aplate and you can now eat it 
